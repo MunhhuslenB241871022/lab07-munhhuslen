@@ -1,1 +1,2 @@
 # lab07-munhhuslen
+lab7 deer online delguurin ui bga ehnii screen bol nevtreh dekgets heregkegch ner bolon nuuts ugee hiin nevterne uuni daraagaar productscreen buyu baraanaa delgets uun deer baraa unteigee garj irne bas  songoj sagsruu hiine daraagaar ni sagsni delgets uund sagsand orson baruunuudin medeelel haragdana mon uuni daraagaar tolboriin heseg ene hesegt tolbor tolson bol amjilttai tologlo gej baraa hudaldan avalt hiine
